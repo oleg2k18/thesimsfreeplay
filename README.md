@@ -7,7 +7,6 @@ Online Resources Generator Unlimited Simoleons, Unlimited The Sims FreePlay Hack
 [![https://i.imgur.com/U7qtCXQ.png](https://i.imgur.com/U7qtCXQ.png)](http://apptrick.info/The-Sims-FreePlay/)
 
 
-![https://i.imgur.com/7tdW4F4.png?1](https://i.imgur.com/7tdW4F4.png?1)
 
 
 
